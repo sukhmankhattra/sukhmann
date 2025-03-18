@@ -1,3 +1,4 @@
+![Screenshot 2025-03-18 101436](https://github.com/user-attachments/assets/d9ecb64b-f516-4f43-a7a3-7859e3410451)
 # sukhmann
 # 🌟 Bouncy Beak
 
